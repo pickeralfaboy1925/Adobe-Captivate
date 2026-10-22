@@ -218,4 +218,4 @@ Adobe Captivate is available as a full free version, including all features and 
 Experience the power of Adobe Captivate today—**download now** and elevate your content creation journey!
 
 ---
-**Last updated:** 2026-10-21 22:49:16 UTC
+**Last updated:** 2026-10-22 01:00:37 UTC
